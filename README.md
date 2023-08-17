@@ -1,0 +1,2 @@
+# EasyScores
+Privacy Policy
